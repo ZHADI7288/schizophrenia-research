@@ -1,0 +1,2 @@
+# schizophrenia-research
+The Substance Abuse and Mental Health Services Administration (SAMHSA) reports that in 2017, 46.6 million American adults were affected by mental illness. Thus, in that year, about 1 in 5 adults in the United States experienced the impact of mental illness, while about 1 in 22, or roughly 11 million, American adults lived with a serious mental health condition. Furthermore, 8.5 million people suffered from co-occurring mental health conditions and addiction disorders. Undoubtedly, the effects of mental illness are widespread. https://lifeinsight.com/
